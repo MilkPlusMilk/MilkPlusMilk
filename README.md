@@ -13,10 +13,8 @@ I live for high energy and complex compositions.
 
 ### 🎮 Gaming
 Mostly a rhythm gamer, but I have high proficiency in Tower Defense, TCG and RTS too!
-
 * My maimai B50:
 <img src="https://i.ibb.co/My7kpJzT/Untitled.jpg" alt="13039">
----
 
 ### 📬 Get in touch
 *I only respond via these channels:*
