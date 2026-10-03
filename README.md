@@ -1,4 +1,4 @@
-# 🥛 Hi! I'm Milk 🥛
+# Hi! I'm Milk 🥛
 
 `Freshman @ UIT - VNU-HCM` | `IT Student` | `Rhythm Game Addict`
 
